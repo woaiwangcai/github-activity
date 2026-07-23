@@ -1,4 +1,4 @@
-Contribution: 2025-07-
+Contribution: 2025-07
 
 Contribution: 2025-07-24 20:00
 
